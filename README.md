@@ -6,7 +6,7 @@ HELLO MY NAME IS MILO LEE! ![](https://64.media.tumblr.com/86fae00889dbb2859d1a4
 
 ![](https://64.media.tumblr.com/56f2e8e716a43e0c7b3ff0565b89ed9a/c0ec5d5755c014b6-0c/s400x600/094ffad9f9953bbfdd9c7cfca6e4b48cde6d9f88.gifv) ![](https://64.media.tumblr.com/2fd73d9597058879b190f6dcd4fbbf3c/c0ec5d5755c014b6-1d/s400x600/bdf827b2633837528dcebf74192f9ff1de2147b6.gifv)
 
-i use he/him and 18 years old! my birfday is jan 5 D・・・・・------ ⬆↓  me and boyfie..![](https://64.media.tumblr.com/f101311e64478844756ec9a92a13418c/e747c25959932209-32/s75x75_c1/f49ded397e6a36bbe7f43fdbaf21c2afb5c1d437.gifv)
+i use he/him and 18 years old! my birfday is jan 5 D・・・・・------ ⬆↓  me and boyfie..![](https://64.media.tumblr.com/f101311e64478844756ec9a92a13418c/e747c25959932209-32/s75x75_c1/f49ded397e6a36bbe7f43fdbaf21c2afb5c1d437.gifv) @BERRYBEAST
 
 ![](https://static.wikia.nocookie.net/freddys-world/images/b/bc/1mwIt26.gif/revision/latest/thumbnail/width/360/height/360?cb=20160124133252) ![](https://static.wikia.nocookie.net/fivenightsatfreddys/images/8/86/267CF59E-5A49-416B-AD78-2ED2BD150771.gif/revision/latest/scale-to-width/360?cb=20180722190441)
 
